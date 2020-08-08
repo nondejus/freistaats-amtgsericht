@@ -1,1 +1,0 @@
-# freistaat-amtgsericht
